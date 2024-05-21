@@ -1,0 +1,7 @@
+- 👋 Hi, I’m GAY
+- 👀 I’m interested in GAY
+- 🌱 I’m currently learning GAY THINGS
+- 💞️ I’m looking to collaborate on GAY'S PROJECTS
+- 📫 How to reach me: GAY.COM
+- 😄 Pronouns: G/A/Y
+- ⚡ Fun fact: I'M GAY
